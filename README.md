@@ -40,7 +40,7 @@ A mixed-methods approach combining:
 
 <h2>🏆 Result</h2>
 
-**This thesis received a perfect 5/5 mark for both the written work and defense**
+**THIS THESIS RECEIVED A PERFECT 5/5 MARK FOR BOTH THE WRITTEN WORK AND DEFENSE!**
 
 
 
