@@ -1,1 +1,1 @@
-# The-Impact-of-Cybersecurity-in-Digital-Marketing-and-Sales-Management
+# The-Impact of Cybersecurity in Digital Marketing and Sales Management
